@@ -28,3 +28,7 @@
 ### 中医
 
 ### 风水
+- [风水常识42例（图文收藏版）](https://mp.weixin.qq.com/s?__biz=MzA4OTg4MjkzNQ==&mid=2247521565&idx=1&sn=85a8b5efcc63cecd75c024e45ad1f7a5&chksm=9016fd45a7617453386613c89dda17db1711625a50a8a8933418f1772f185830aa77a20ce546&scene=27)
+- [风水学入门基础知识大汇总](https://astro.sohu.com/a/500728851_100036330)
+
+  
